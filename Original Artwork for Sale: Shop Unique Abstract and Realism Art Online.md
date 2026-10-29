@@ -29,4 +29,4 @@ Discover original paintings on sale, explore an online marketplace for paintings
 
 Explore Terpnash today to discover unique abstract and realism paintings and find artwork that reflects your personal taste.
 
-
+https://terpnash.com/
